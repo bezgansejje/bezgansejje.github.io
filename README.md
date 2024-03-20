@@ -1,1 +1,0 @@
-# bezgansejje.github.io
